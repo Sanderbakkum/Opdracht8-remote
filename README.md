@@ -1,0 +1,1 @@
+De gemiddelde vrouw eet 20 kg lipstick in haar leven
